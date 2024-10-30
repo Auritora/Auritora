@@ -12,4 +12,4 @@
 
 💌 You can contact me through **Mastodon** or **email**
 
-🎨 Avatar: CC BY 4.0 by **David Revoy**. 
+🎨 Avatar: cropped from "Dorlotons Degooglisons" by **David Revoy**, framasoft.org − CC-BY 4.0
