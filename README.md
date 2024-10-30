@@ -11,3 +11,5 @@
 🙊 Always **happy to learn and talk** about a wide range of important and unimportant topics 
 
 💌 You can contact me through **Mastodon** or **email**
+
+🎨 Avatar: CC BY 4.0 by **David Revoy**. 
